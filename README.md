@@ -7,7 +7,7 @@ Think about any thing which U see in this site and Ask: Why ?
 Here are some ideas to get you started:
 -->
 Trong thế giới náo nhiệt của ánh đèn sân khấu và ống kính máy ảnh, âm nhạc luôn là nguồn cảm hứng không thể thiếu trong cuộc sống hàng ngày của tôi - một người mẫu chuyên nghiệp. Dường như, âm nhạc là bí mật giúp tôi giữ được sự cân bằng, sự tĩnh tâm giữa những lúc căng thẳng và hối hả.
-Tôi thích những con sô và tôi thường ngân nga những con số này `19 14 30 50 92 55 73 88 49 31 10` mỗi ngày
+Tôi thích những con sô và tôi thường ngân nga những con số này `387, 521, 63, 789, 245, 432, 78, 605, 124, 356, 892` mỗi ngày
 - # Play List Music
 - [https://www.youtube.com/watch?v=dQw4w9WgXcQ](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 - [https://www.youtube.com/watch?v=dQw4w9WgXcQ](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
